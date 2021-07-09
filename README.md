@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @volleyball girl 
-- 👀 I’m interested in volleyball and would like a volleyball sponsors for my team here a link https://www.facebook.com/search/top?q=launceston%20volleyball%20club 
+- 👀 I’m interested in volleyball and would like a volleyball sponsors for my team here a link to  our clubs facebook page https://www.facebook.com/search/top?q=launceston%20volleyball%20club 
 - 🌱 I’m currently learning volleyball 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with anyone who is willing to sponsor our volleyball team
 - 📫 How to reach me is by GMAIL (fanamnuti4@gmail.com),INSTAGRAM (@nufi_is_here)and FACEBOOK (Nuti Fanam) P.S the one with the haikyuu profile pic.
 
 <!---
